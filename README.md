@@ -1,4 +1,4 @@
-# Vivid BAD SQUAD – PaⅢ.SENSATION
+# Vivid BAD SQUAD – PaⅢ.SENSATION（feat. 小豆沢こはね&白石杏&初音ミク&鏡音リン）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
